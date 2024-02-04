@@ -10,3 +10,6 @@ I bought one at Walmart in December 2022. It's of decent quality! This was on th
 >
 >MADE IN CHINA
 >November 2021
+
+# Company Profile:
+Slightly different name? https://tjxhjsqc.en.made-in-china.com/
