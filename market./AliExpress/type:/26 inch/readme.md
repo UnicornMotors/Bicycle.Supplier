@@ -4,3 +4,6 @@ index:
 - https://www.aliexpress.us/item/3256805982850540.html
 - https://www.aliexpress.us/item/3256806414745458.html
 - https://www.aliexpress.us/item/3256805716774036.html
+- https://www.aliexpress.us/item/3256805496188211.html
+- https://www.aliexpress.us/item/3256805741348744.html
+- https://www.aliexpress.us/item/3256805347074463.html
